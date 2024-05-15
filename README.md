@@ -1,0 +1,2 @@
+# pyscriptoNonCriptoKopytko
+Vietato l'accesso
